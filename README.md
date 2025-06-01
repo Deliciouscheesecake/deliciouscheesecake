@@ -2,7 +2,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 ·   ִHe / him . male . ISFP 9w1 🦭 ◟  ͜ ׄ  ִ୨𓂂
    
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ͡♡𝅼  𓎢𓎟 ͜    ۪۪۪  dni : proshippers, pedos and basic problematic stuff 𓏴𓏴𓏴𓏴
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ͡♡𝅼  𓎢𓎟 ͜    ۪۪۪  dni : proshippers, pedosm tcc community and basic problematic stuff 𓏴𓏴𓏴𓏴
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://wilardo.crd.co/assets/images/gallery25/476bb07c.gif?v=e2d503a4)  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ *I follow back !!*
  
