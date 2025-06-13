@@ -1,4 +1,4 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🍀 ⠀‿୨ ͡ ₊◝⠀ JAY  / KAMIL ( Jay is an online name for those who struggle to pronounce my name ) ⬚  ִ    ๑
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🌺 ⠀‿୨ ͡ ₊◝⠀ JAY  / KAMIL ( Jay is an online name for those who struggle to pronounce my name ) ⬚  ִ    ๑
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 ·   ִHe / him . male . ISFP 9w1 🦭 ◟  ͜ ׄ  ִ୨𓂂
    
