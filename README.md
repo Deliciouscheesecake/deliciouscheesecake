@@ -1,26 +1,32 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🌺 ⠀‿୨ ͡ ₊◝⠀ JAY  / KAMIL ( Jay is an online name for those who struggle to pronounce my name ) ⬚  ִ    ๑
+‎ ‎ ‎ ‎ ‎ ‎ ‎![IM](https://files.catbox.moe/qkbu87.png)
+‎ ‎ ‎ ‎ ‎         ⠀
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ᰍ𐔌 ·   ִHe / him . male . ISFP 9w1 🦭 ◟  ͜ ׄ  ִ୨𓂂
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎KYLE  / KAMIL 
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He / him . male . ISFP 9w1 🦭 ◟  ͜ ׄ  ִ୨𓂂
    
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ͡♡𝅼  𓎢𓎟 ͜    ۪۪۪  dni : proshippers, pedos, tcc community and basic problematic stuff 𓏴𓏴𓏴𓏴
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://wilardo.crd.co/assets/images/gallery25/476bb07c.gif?v=e2d503a4)  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ *I follow back !!*
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://file.garden/Zj8MKPoh-G9Y8EJE/stamps/by%20others/IMG_6532.png)  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ *I follow back !!*
  
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  𓎢𓎟𓎡 . Be free to talk to me or sit with me! DO NOT COPY ⟡ 🪷 𓎢𓎟𓎡 ![](https://komarev.com/ghpvc/?username=your-Deliciouscheesecake&color=ff99be&-username&label=Cuties)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‿୨ ͡  𓏵 I heart Johan Seong from Lookism   
 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  , 𝜗℘, Be free to ask me anything on pony town !  ‎ ‎ ‎ ‎  ͜͝   ‎ ‎ ‎ ‎ ‎   ![Image](https://files.catbox.moe/zgrkkx.gif)
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  , 𝜗℘, Be free to ask me anything on pony town !  ‎ ‎ ‎ ‎  ͜͝   ‎ ‎ ‎ ‎ ‎   ![img](https://files.catbox.moe/k0js2g.gif)
  
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ִֶ𐔌 ₊𓎡𓎡   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  [Sign atabook !](https://cakeycake.atabook.org/) 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://wilardo.crd.co/assets/images/gallery08/8a4b4f7d.png?v=e2d503a4) ![Image](https://wilardo.crd.co/assets/images/gallery08/28e83158.png?v=e2d503a4)  
 
- ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎‎![Image](https://64.media.tumblr.com/67ff2d86904662af606750d23001831a/178e2f094de5bca4-d7/s250x400/3c35ca6c0e023e53f57086067951a7ea3de5c2ed.gifv)
- ![Image](https://64.media.tumblr.com/1a8f60147047b99c08f0d9ef9f5a3f3d/178e2f094de5bca4-fd/s250x400/f54b4ccfee3bb2bf3fd6332f78343fb00ab7b889.gifv) 
-![Image](https://64.media.tumblr.com/2d46d9d01d1015362a59fb0da6985c15/178e2f094de5bca4-bc/s250x400/33abc5b7c647f62052ec6d95d7bd1de798f6b64a.gifv) ![Image](https://64.media.tumblr.com/2dd0995ccfe58f473298aa79efeb21ae/178e2f094de5bca4-76/s250x400/34d65434c05ebd3e06505b1788ec93c64fc83530.gifv)
-![Image](https://64.media.tumblr.com/69e5a1db56f1e6a31016705e8373f02b/178e2f094de5bca4-fe/s250x400/05ea2ea165c80fc58dde152c4756d3d5cc9c3fef.gifv)
-![Image](https://64.media.tumblr.com/70b946dd7aecbe20320eb6f48d54acf1/178e2f094de5bca4-a2/s250x400/773b1dd907c4f167c4535498098f60d5366029f0.gifv)  HIII MILESSS
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎**HIII MILESSS**
+
+ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ![img](https://64.media.tumblr.com/159061c9d650b40de0ecfb8db41ced02/22d781cf8a9ae5c6-d9/s100x200/6f333bf46976d4aa636aa7509de73b5525c41b26.pnj) ![(im](https://64.media.tumblr.com/2553a16c735b1a1d8ac8c7cd43f97779/1b8381f969116a1e-51/s100x200/3acc8c32b4b9ff8d41a09ec6706289641e780a49.png) ![](https://64.media.tumblr.com/5bbcdc7b712f32858a1e3b3546adb3c7/8c49db604b0f3002-6c/s100x200/df2883cec17177c0a6fdd9972793353d330c8eb1.pnj) ![](https://64.media.tumblr.com/52a40a25f48c0c8150043338ee0d78a5/473928ea48888009-47/s100x200/9401e1261df1d457af79def5a7dc3163d8c72843.pnj)
+
+ 
+ ![](https://adriansblinkiecollection.neocities.org/d64.gif) ![](https://adriansblinkiecollection.neocities.org/d91.gif) ![](https://adriansblinkiecollection.neocities.org/d22.gif) ![](https://adriansblinkiecollection.neocities.org/d10.gif) ![](https://adriansblinkiecollection.neocities.org/h28.gif) ![](https://adriansblinkiecollection.neocities.org/k36.gif) ![](https://adriansblinkiecollection.neocities.org/x15.gif)
+
+‎ ‎ ‎ ‎ ‎ ‎ ![IMAG](https://files.catbox.moe/3rr2ln.png)
 
 
 
