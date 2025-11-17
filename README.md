@@ -11,7 +11,7 @@
  
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  𓎢𓎟𓎡 . Be free to talk to me or sit with me! DO NOT COPY ⟡ 🪷 𓎢𓎟𓎡 ![](https://komarev.com/ghpvc/?username=your-Deliciouscheesecake&color=ff99be&-username&label=Cuties)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‿୨ ͡  𓏵 I heart Johan Seong from Lookism   
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‿୨ ͡  𓏵 Sharing self shipper of Johan Seong !
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  , 𝜗℘, Be free to ask me anything on pony town !  ‎ ‎ ‎ ‎  ͜͝   ‎ ‎ ‎ ‎ ‎   ![img](https://files.catbox.moe/k0js2g.gif)
  
