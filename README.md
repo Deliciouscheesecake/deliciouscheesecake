@@ -5,13 +5,13 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He / him . male . ISFP 9w1 🦭 ◟  ͜ ׄ  ִ୨𓂂 ![](https://private-user-images.githubusercontent.com/240227637/507248767-e9433c38-fe69-4cd3-9a57-5f2670ea1a40.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjIzNzUzMjIsIm5iZiI6MTc2MjM3NTAyMiwicGF0aCI6Ii8yNDAyMjc2MzcvNTA3MjQ4NzY3LWU5NDMzYzM4LWZlNjktNGNkMy05YTU3LTVmMjY3MGVhMWE0MC5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMTA1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTEwNVQyMDM3MDJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT02YWIyZDVjYmM2ZWRhMDdjMDIwY2VlMjAzNTY4OGExYzAxMjk0YjYxOTYzMDUxMzJkYmEyYjgxYWI2ZjU5ZmNjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.vKLfC-1Q2Nqm_28F42gxRwTc2WupdMcHtA3sl9aRXqU) ![](https://i.postimg.cc/Sxt18pN8/gay-mlm-20px-6-stripes.png)![](https://i.postimg.cc/qRqJXv03/lithoromantic-5-stripes-20-px.png)
    
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ͡♡𝅼  𓎢𓎟 ͜    ۪۪۪  dni : proshippers, pedos, tcc community and basic problematic stuff 𓏴𓏴𓏴𓏴
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ͡♡𝅼  𓎢𓎟 ͜    ۪۪۪  dni : darkshippers, pedos, tcc community and basic problematic stuff 𓏴𓏴𓏴𓏴
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://file.garden/Zj8MKPoh-G9Y8EJE/stamps/by%20others/IMG_6532.png)  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ *I follow back !!*
  
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  𓎢𓎟𓎡 . Be free to talk to me or sit with me! DO NOT COPY ⟡ 🪷 𓎢𓎟𓎡 ![](https://komarev.com/ghpvc/?username=your-Deliciouscheesecake&color=ff99be&-username&label=Cuties)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‿୨ ͡  𓏵 Sharing self shipper of Johan Seong !
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‿୨ ͡  𓏵 Sharing self shipper of Johan Seong ! SELFSHIPPER OF ~` 🍨 Iro 🍀 :: DOUBLES DNI DNI DNI
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  , 𝜗℘, Be free to ask me anything on pony town !  ‎ ‎ ‎ ‎  ͜͝   ‎ ‎ ‎ ‎ ‎   ![img](https://files.catbox.moe/k0js2g.gif)
  
