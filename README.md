@@ -14,8 +14,8 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‿୨ ͡  𓏵 Sharing self shipper of Johan Seong ! SELFSHIPPER OF ~` 🍨 Iro 🍀 :: DOUBLES DNI DNI DNI
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  , 𝜗℘, Be free to ask me anything on pony town !  ‎ ‎ ‎ ‎  ͜͝   ‎ ‎ ‎ ‎ ‎   ![img](https://files.catbox.moe/k0js2g.gif)
- 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ִֶ𐔌 ₊𓎡𓎡   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  [Sign atabook !](https://cakeycake.atabook.org/)
+  
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ִֶ𐔌 ₊𓎡𓎡   ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  [Sign atabook !](https://cakeycake.atabook.org/) [Doc of me and my friends](https://docs.google.com/document/d/1HxXxAMyjozcohslAJfM1TwxWE25EcmGXt0wvZR0lPys/edit?usp=sharing)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image](https://wilardo.crd.co/assets/images/gallery08/8a4b4f7d.png?v=e2d503a4) ![Image](https://wilardo.crd.co/assets/images/gallery08/28e83158.png?v=e2d503a4)  
 
