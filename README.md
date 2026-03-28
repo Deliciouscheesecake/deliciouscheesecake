@@ -1,9 +1,5 @@
-I mog @daredevils , @theholy0ne , @goodbyehome , and @calicojackorrwhatever ![](https://i.postimg.cc/Sxt18pN8/gay-mlm-20px-6-stripes.png)![](https://i.postimg.cc/qRqJXv03/lithoromantic-5-stripes-20-px.png)  ![](https://komarev.com/ghpvc/?username=your-Deliciouscheesecake&color=84d95f&-username&label=Cuties&style=plastic)
+Main acc  ![](https://i.postimg.cc/Sxt18pN8/gay-mlm-20px-6-stripes.png)![](https://i.postimg.cc/qRqJXv03/lithoromantic-5-stripes-20-px.png)  ![](https://komarev.com/ghpvc/?username=your-Deliciouscheesecake&color=84d95f&-username&label=Cuties&style=plastic))    ‎ ‎
 
-Look me in my hunter eyes, I want yoy to be mine! Cantescape, im paralyzed 😂😂😂😂😂😂😂😂😂😂😂😂 boi dis tuf
-
-‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎Be free to ask anything ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [Strawpage](https://kylewally.straw.page/)‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [Sign atabook ](https://cakeycake.atabook.org/) [Doc of me and my friends](https://docs.google.com/document/d/1HxXxAMyjozcohslAJfM1TwxWE25EcmGXt0wvZR0lPys/edit?usp=sharing)    ‎ ‎
-
-‎ ‎‎ ‎ ‎ ‎ [Join this cool black widow server](https://discord.gg/cAvvnBNp)‎
+alts - @firstrobin , @throatshot‎
 
 02:44 AM[dex] whispers: Gosh... i miss my wetpathetic bottom kyle.... said by @daredevils
